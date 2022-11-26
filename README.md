@@ -13,5 +13,5 @@
 
 
 
-zhuiyazhe@sing.com
+zhuiyazhe@sina.com
 
